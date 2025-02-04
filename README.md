@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I was a competitive ballerina for 12 years:)
+- ⚡ Fun fact: I was a competitive ballerina for 14 years:)
 
 <!---
 jdianaa/jdianaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
